@@ -1,1 +1,1 @@
-Margie Carter
+Margie Carter, mcarter@iastate.edu
